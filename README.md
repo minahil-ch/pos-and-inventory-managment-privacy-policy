@@ -1,1 +1,0 @@
-# pos-and-inventory-managment-privacy-policy
